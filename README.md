@@ -4,15 +4,15 @@
 
 下载本站的PC端网址发布器
 
-https://www.sjzl.cc/123.rar
+https://www.sjzl.cc/23.rar
 
 2.安卓永久访问本站的方法
 
 下载本站的安卓APP安卓HTTP下载地址或者安卓网址发布【请复制到游览器下载，国内游览器有时候会报毒，请用谷歌或火狐游览器下载】
 
-安卓APP：https://www.sjzl.cc/123.apk
+安卓APP：https://www.sjzl.cc/13.apk
 
-安卓网址发布器：https://www.sjzl.cc/456.apk
+安卓网址发布器：https://www.sjzl.cc/56.apk
 
 3.IOS永久访问本站的方法
 
